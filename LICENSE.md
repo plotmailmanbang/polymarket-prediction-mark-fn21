@@ -1,4 +1,4 @@
-# 
+# Polymarket advanced Algorithm: scalping-strategies & market-making is the best Polymarket algorithm, featuring scalping-strategies and market-making. Smart, fast, and optimized
 
 
 
